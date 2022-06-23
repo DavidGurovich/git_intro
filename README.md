@@ -1,1 +1,2 @@
 David Gurovich
+gurovicd@oregonstate.edu
